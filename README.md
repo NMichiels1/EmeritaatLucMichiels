@@ -1,1 +1,1 @@
-# EmeritaatLucMichiels
+# Emeritaat Luc Michiels
